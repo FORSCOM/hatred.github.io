@@ -1,1 +1,1 @@
-# hatred.github.io
+# https://hatred2k.github.io/ems-docs/
